@@ -1,1 +1,1 @@
-I dont consent in anyone using this for own use, we have copyright documents connected to this. Whoever uses this against our will will have consequences
+Dont use please and thanks
